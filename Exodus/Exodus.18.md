@@ -1,0 +1,27 @@
+nd Jethro, the priestof Midian, Moses's father-in-law, heard of all the God had done for MOses and for Israel His people- That the Lord had brought Israel out of Egypt.
+Then Jethro, Mosess' father-in-law, took Zipporah, Moses' wife, after he had sent her back, 
+with her two sons, of whom the name of one was Gershom(for he said, "I have been a stranger in a foreign land")
+and the name of the other was Eliezer (For he said, "The God of my father was my help, and delivered me from the sword of Pharaoh")
+and Jethro, Moses' father-in-law came with his sons and his wife to Moses in the wilderness, where he was encamped at the mountain of God.
+Now he had said to Moses, "I, your father-in-law Jethro, am coming to you with your wife and her two sons with her."
+So Moses went out to meet his father-in-law, bowed down, and kissed him.  And they asked each other about their well-being, and they went into the tent.
+And Moses told his father-in-law all that the Lord had done to Pharaoh and to the Egyptians for Israel's sake, all the hardship that had come upon them on the way, and how the Lord had delivered them.
+Then Jethro rejoiced for all the good which the Lord had done for Israel, whom He had delivered out of the hand of the Egyptians. 
+And Jethro said, "Blessed be the Lord, who has delivered you out of the hand of the Egyptians and out of the hand of Pharaoh, and who had delivered the people from under the hnad of the Egyptians.
+Now I know that hte Lord is greater than all the gods; for in the very thing in which they behaved proudly, He was aboce them."
+Then Jethro, Moses' Father-in-law, took a burnt offering and other sacrifices to offer to God.  And Aaron came with all the elders of Israel to eat bread with Moses' father-in-law before God.
+And so it was, on the next day, that Moses sat to judge the people; and the people stood before Moses from morning until evening.  
+So when Moses' father-in-law saw all that he did for the people, he said, "What is this thing that you are doing for the people?  Why do you alone sit, and all the people stand before you from morning until evening?"
+And Moses said to his father-in-law, "Because the people come to me to inquire of God.
+When they have a difficulty, they come to me, and I judge between one and another and I make known the statutes of God and His laws."
+So Moses' father-in-law said to him, "The thing that you do is not good. 
+Both you and these people who are with you will surely wear yourselves out.  For this thing is too much for you; you are not able to perform it by yourself.
+Listen now to my voice; I will give you counsel, and God will be with you: Stand before God for the people, so that you may bring the difficultites to God. 
+And you shall teach them the statutes and the laws, and show them the way in which they must walk and the work they must do.
+Moreover you shall select from all the people able men, such as fear God, men of truth, hating covetousness; and place such over them to be rulers of thousands, ruler of hundreds, rulers of fifties, and rulers of tens.  
+And let them judge the people at all times.  Then it will be that every great matter they shall bring to you, but ever small matter they themselves shall judge.  So it would be easier for you, for they will bear the burden with you.
+If you do this thing, and GOd so commands you, then you will be able to endure, and all this people will also go to their place in peace."
+So Moses heeded the voice of his father-in-law  and did all that he had said.
+And Moses chose able men out of all Israel, and made them heads over the people: rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens.
+So they judged the peopl at all times; the hard cases they brought to Moses, but they judged every small case themselves.
+Then Moses let his father-in-law depart, and he went his way to his own land.
