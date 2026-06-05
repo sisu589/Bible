@@ -1,7 +1,7 @@
 # 📖 Bible Reading Repository
 
 A clean, daily-driven repo for reading the Bible chapter by chapter, practicing typing, GitHub, and reflection.
-
+## Berean Study Bible (BSB)
 ## Daily Workflow
 1. Every day at the same time, create a new Markdown file named like this:  
    `Genesis.1.md` (Book.Chapter.md)
