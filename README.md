@@ -3,12 +3,17 @@ A clean, daily-driven repo for reading the Bible chapter by chapter, terminal an
 ## * Note * 
 - All objects created in terminal.
 - Striving to keep verse aligned with correct line number.
+- Versions used
+        - Berean Standard Bible (BSB)
+        - Available translations
+  
 ## Daily Workflow
 1. Every day, create a new Markdown file named like this:  
    `Genesis.1.md` (Book.Chapter.md)
 2. Copy the full chapter text into a markdown files using nano/vim/helix
 3. Add the file to GitHub
 5. Push to GitHub
+6. Self Reflection of literal and spiritual interpertations 
 
 ## Files in the Repo
 - Evey Book is stored as its own directory (e.g., `Genesis`, `Exodus`, `Enoch`)
