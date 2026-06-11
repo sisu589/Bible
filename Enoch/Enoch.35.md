@@ -1,0 +1,1 @@
+And from thence I went toward sthe west to the ends of the earth, and saw there three portals of the ehaven open such as I had seen in the east, the same number of portals, and the same number of outlets.

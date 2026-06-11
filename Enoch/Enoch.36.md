@@ -1,0 +1,4 @@
+And from thene I went to the south t othe ends of the earth, and saw there three open portals of the heaven: and thence there come dew, rain, and wind.
+And from thenve I went to the east to the ends of the heaven, and saw here the three eastern portals of heaven open and small portals above them.
+Through each of these small portals pass the stars of heaven and run their course to the west on the path which is shown  to them.
+And as often as I saw I blessed always the Lord of Glory, and I continued to bless the Lord of Glory who was wrought great and glorious wonders, to show the greatness of His work to the angels and to spirits and to men, that they might praise His work and all His creation: that they might see the work of His might and praise the great work of His hands and bless Him for ever.
