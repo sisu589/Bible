@@ -1,0 +1,10 @@
+And in that palce I saw the fountain of righteousness Which was inexhaustible: and around it were many fountains of wisdom: And all the thirsty drank of them, and were filled with wisdom, and their dwellings were with the righteous and holy and elect.
+And at that hour that Son of Man was named In the presence of the Lord of Spirits, and his name before the Head of Days.
+Yea, before the sun and the sidgns were created, Before the stars of the heaven were made, His name was named before the Lord of Spirits.
+He shall be a staff to the rigtherous whereon to stay themseleves and not fall, And he shall be the light of the Gentiles, and the hope of those who are troubled of the heart.
+All who dwell on earth shall fall down and worship before him, and will praise and bless and celevrate with song the Lord of Spirits.
+And for this reason hath he been chosen and hidden before Him, Before the creation of the world and for evermore.
+And the wisdom of the Lord of Spirits hath revealed him to the holy and righteous; For he hath preserved the lot of the righteou, Because they have hated and despised this world of unrighteousness, and have hated all its works and ways in the name of the Lord of Spirits:  For in his name they are saved, and accroding to his good pleasure hath it been in regqard to their life.
+In these days downcast in countenance shsall the kings of the earth have become, and the strong wo possess the land because of the works of their hands, For on the day of their anguish and affliction they shall not (be able to) save themseleves.
+And I will give them over into the hands of Mine elect: As straw in the fire so shall they burn before the face of the holy: As lead in the water shall they sink before the face of the righteous, and no trace of them shall any more be found.
+And on the day of their affliction there shall be rest on the eath, and before them they shall fall and not rise again"  And there sshall be no one to take them with his hands and raise them:  For they have denied the Lord of Spirits and His Anointed. The name of the Lord of Spirits be blessed.
